@@ -6,8 +6,3 @@ adsfasdfdsaf
 fasdf
 adsfasdf
 asdf
-asdfasdfasdf
-mhg
-adfasdf
-adfasdfsdfdsfasdf
-asdfsdf
