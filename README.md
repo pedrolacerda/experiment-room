@@ -7,9 +7,3 @@ fasdf
 adsfasdf
 asdf
 asdfasdfasdf
-asdfasdfadf
-fasdf
-hgfhgf
-jhgfjhgj
-jyfg
-sdfadfsdfs
