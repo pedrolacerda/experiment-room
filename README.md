@@ -6,6 +6,3 @@ adsfasdfdsaf
 fasdf
 adsfasdf
 asdf
-asdffasdf
-adfadfasdfasdf
-dfasdfasdfasdf
